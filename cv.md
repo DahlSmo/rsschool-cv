@@ -1,5 +1,5 @@
 1 Dal Smolikov\n 
-2 mobile phone +7 921 886 26 13\n
+2 mobile phone +7 921 XXX XX XX\n
 
 3 I want to work remotely, spend more time studying of programming and finance.\n
 I am careful in my work, I try to do everything on time. I adhere to a systematic approach to work.\n
