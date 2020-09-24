@@ -1,5 +1,5 @@
 1. **Dal Smolikov**
-2. Mobile phone +7 921 XXX XX XX 
+2. Mobile phone +7 921......
 -----------------------------------
 3. I want to work remotely, spend more time studying of programming and finance.  
 I am careful in my work, I try to do everything on time. I adhere to a systematic approach to work.  
